@@ -1,1 +1,4 @@
 # Lab-7
+
+GROUP 
+EMMANUEL M TURINGAN
